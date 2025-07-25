@@ -1,2 +1,0 @@
-# joaov
-João Vitor Veiga
